@@ -1,6 +1,6 @@
 ### Hi there 👋
 I'm extremely new to coding and the tech world. 
-Currently, I am on maternity leave and have decided to learn a new skill or two and possible a career change into the tech industry. 
+Currently, I am on maternity leave and have decided to learn a new skill or two and possibly a career change into the tech industry. 
 I have been working in funeral industry for the past 15 years.
 I'm eager to learn and ready for a change.
 
