@@ -1,7 +1,7 @@
 ### Hi there 👋
 I'm extremely new to coding and the tech world. 
 Currently, I am on maternity leave and have decided to learn a new skill or two and possibly a career change into the tech industry. 
-I have been working in funeral industry for the past 15 years.
+I have been working in the funeral industry for the past 15 years.
 I'm eager to learn and ready for a change.
 
 I enjoy spending time  with my family (partner, my two sons Arlo (4 years) and Mylo (4.5 months) and my partners son); 
