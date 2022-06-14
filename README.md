@@ -4,7 +4,7 @@ Currently, I am on maternity leave and have decided to learn a new skill or two 
 I have been working in the funeral industry for the past 15 years.
 I'm eager to learn and ready for a change.
 
-I enjoy spending time  with my family (partner, my two sons Arlo (4 years) and Mylo (4.5 months) and my partners son); 
+I enjoy spending time  with my family (partner, our two sons Arlo (4 years) and Mylo (4.5 months) and my partners son); 
 we enjoy going for hikes, watching movies and throwing rocks at the beach, as well all things toddler.
 
 <!--
